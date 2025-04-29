@@ -1,0 +1,13 @@
+Desde o momento em que comecei a ler Vidas Secas, de Graciliano Ramos, percebi que não era apenas uma obra sobre a seca nordestina, mas um retrato implacável da luta humana pela sobrevivência. Ramos, que viveu no sertão de Alagoas, traz uma narrativa autêntica, quase documental, que nos transporta para um cenário árido onde os personagens lutam contra a fome, a desigualdade e a própria falta de esperança.  
+
+Fabiano, Sinhá Vitória, os dois filhos e a cadela Baleia formam uma família marcada pela escassez. A seca não é apenas um pano de fundo, mas um antagonista constante. Em minha pesquisa sobre o livro, percebi que a estrutura fragmentada da narrativa reflete essa realidade dura. Cada capítulo é um instante congelado no tempo, uma fração da existência dos protagonistas.  
+
+Uma das características mais marcantes do livro é a economia de palavras. Ramos escreve de forma direta, sem rodeios, e isso me fez refletir sobre como a linguagem influencia nossa percepção do mundo. Fabiano, por exemplo, sente profundamente a injustiça ao seu redor, mas sua limitação linguística impede que ele verbalize seus sentimentos. Essa ausência de expressão cria uma barreira entre ele e a sociedade, aumentando sua sensação de isolamento.  
+
+A crítica social presente em *Vidas Secas* também é essencial para entender o contexto da época. Ao pesquisar sobre o Brasil no período em que Ramos escreveu sua obra, percebi que a miséria do sertanejo era perpetuada por um sistema que os mantinha à margem. Fabiano trabalha como vaqueiro, mas nunca consegue melhorar de vida. Suas tentativas de lidar com a cidade mostram sua vulnerabilidade diante de autoridades opressoras e injustiças sociais que ainda existem hoje.  
+
+Baleia, a cadela da família, é um dos personagens mais simbólicos do romance. Durante a leitura, percebi que sua presença vai além de um simples animal de estimação. Ela representa o afeto e a humanidade que, muitas vezes, faltam aos próprios humanos. Seu destino trágico é uma das cenas mais dolorosas da obra e me fez refletir sobre os limites da sobrevivência.  
+
+Ao concluir minha análise, percebi que Vidas Secas não é apenas um livro sobre a seca, mas um questionamento profundo sobre a existência. Graciliano Ramos escreve com brutal sinceridade, sem romantizar a miséria, mas também sem retirar a dignidade de seus personagens. A obra nos faz perguntar: diante da adversidade, como encontramos sentido na vida?  
+
+Minha pesquisa sobre o livro me levou a questionar não apenas o romance em si, mas também a estrutura social do Brasil e o papel da literatura na denúncia das injustiças. Ler Vidas Secas foi mais do que um estudo, foi um mergulho na resistência humana.  
